@@ -1,1 +1,1 @@
-imalo edno vreme na zapad
+imalo edno vreme na zapad OK
